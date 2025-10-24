@@ -1,1 +1,1 @@
-<img src="https://i.pinimg.com/736x/61/fb/75/61fb75a6ede7c2691bdec56eb2b1d8ec.jpg" alt="This may contain: a pink and black wallpaper with hearts, stars, and other things on it"/><img width="1200" height="400" alt="image" src="https://github.com/user-attachments/assets/316e45d3-2419-4883-bc39-f248cd8699f6" />
+<img src="https://i.pinimg.com/736x/61/fb/75/61fb75a6ede7c2691bdec56eb2b1d8ec.jpg" alt="This may contain: a pink and black wallpaper with hearts, stars, and other things on it"/>
